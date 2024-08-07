@@ -6,7 +6,7 @@
 ## Sobre Mim 😊
 #### Sou um profissional com pouco mais de 7 anos de experiência no mercado de trabalho. Já atuei em funções como: Jovem Aprendiz na área de Vendas, Almoxarife e Analista Logístico.
 #### Sou Formado desde 2021 em Marketing e Propaganda pela Universidade Nove de Julho. Conclui um curso Técnico em Vendas pelo Senac em 2016. Estudei Inglês por dois anos na WiseUp (2021-2023). E atualmente estou buscando aprimorar minhas habilidades e me desenvolver na área de dados.
-#### Estou completamente apaixonado por transformar números em insights acionáveis, devido a isso, estou totalmente motivado a encontrar uma nova direção profissional em minha vida. Estou sempre explorando novas técnicas e ferramentas para expandir minhas skills e poder aplicá-las em projetos desafiadores, afim de colaborar com equipes talentosas e impulsionar o sucesso do projeto.
+#### Estou completamente apaixonado por transformar números em insights acionáveis. Devido a isto, estou totalmente motivado a encontrar uma nova direção profissional em minha vida. Estou sempre explorando novas técnicas e ferramentas para expandir minhas skills e poder aplicá-las em projetos desafiadores, afim de colaborar com equipes talentosas e impulsionar o sucesso do projeto.
 #### Uma frase que guardo comigo para esse novo momento profissional é: “Saber estatística é como saber línguas estrangeiras ou álgebra. Pode ser útil a qualquer momento e em qualquer circunstância - Arthur Lyon Bowley".
 
 ## Ferramentas ⬇️
