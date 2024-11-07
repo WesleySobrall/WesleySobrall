@@ -19,7 +19,7 @@ Possuo sólidos conhecimentos em marketing, com habilidades em comunicação e d
 
 Atualmente, estou expandindo meus conhecimentos na área de dados, focando em análise de dados e técnicas de visualização, a fim de gerar insights com uma abordagem mais analítica e baseada em dados. Este esforço reflete meu compromisso com a contínua melhoria e adaptação às demandas do mercado moderno, onde a capacidade de interpretar e utilizar dados se tornou essencial para o sucesso.
 
-Além das competências técnicas, possuo habilidades de comunicação na língua inglesa, o que me permite interagir com profissionais de outros países e participar de decisões corportativas internacionais. Esta habilidade tem se mostrado crucial em um ambiente de trabalho cada vez mais globalizado e interconectado.
+Além das competências técnicas, possuo habilidades de comunicação na língua inglesa, o que me permite interagir com profissionais de outros países e participar de decisões corporativas internacionais. Esta habilidade tem se mostrado crucial em um ambiente de trabalho cada vez mais globalizado e interconectado.
 
 Abaixo, segue algumas das ferramentas que utilizo no meu dia-a-dia. :point_down:
 
